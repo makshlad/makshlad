@@ -1,4 +1,4 @@
-### maksym_hladkyy
+###  **Discord**: [maksym_hladkyy](https://discord.com/users/maksym_hladkyy)
 
 <!--
 **makshlad/makshlad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
